@@ -8,10 +8,11 @@
 
 
 02
-——————————————老牌稳定：SSRDOG———————————————
+——————————————老牌高速稳定：SSRDOG———————————————
 
-
-官网：https://dog.ssrdog111.com/#/register?code=b2B9BYXY
+       https://go.ssrdog.com/?code=b2B9BYXY
+官网：   https://st1.hosbb.com/#/register?code=b2B9BYXY
+        https://dog.ssrdog111.com/#/register?code=b2B9BYXY
         https://dog.ssrdog222.com/#/register?code=b2B9BYXY
 特点：老牌稳定多年，支持多平台，多个工具clash ，V2RayNG，小火箭（有账号，苹果有福了）。
 价格：月消费大约25元，新注册用户提供一天试用（24小时3G随意用）
@@ -23,7 +24,7 @@
 
 03
 ——————————————实惠视频：easyLink———————————————
-官网：https://easylink.fit/reguser?aff=l8gZVGFx
+官网：https://easylink.space/reguser?aff=l8gZVGFx
 
 特点：稳定支持多平台（全视频、GPT），clash，surge，小火箭（无账号）。
 价格：平民且有优惠，月消费15元，常有活动，同时有不限时的套餐。
@@ -38,7 +39,8 @@
 
 
 官网：https://xfx.ink/#/register?code=Xsx9Olaw
-https://xn--9kqx68ccs3a.club/#/register?code=l8gZVGFx
+      https://xn--yet873i92h.shop/#/register?code=yGW0Kmni
+      https://xn--9kqx68ccs3a.club/#/register?code=l8gZVGFx
 特点：自有软件小飞象，安装操作简单，非常适合新手
 价格：平民且有优惠，月消费仅10元，常有活动，同时偶尔推出优惠不限时的套餐。
 服务：24 小时，有客服
